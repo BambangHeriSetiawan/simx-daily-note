@@ -1,0 +1,1 @@
+# simx-daily-note
